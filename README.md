@@ -1,1 +1,1 @@
-# LanaAvdeeva.github.io
+# SvetlanaAvdeeva.github.io
