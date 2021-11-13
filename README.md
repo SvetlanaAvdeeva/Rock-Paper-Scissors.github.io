@@ -1,1 +1,1 @@
-# SvetlanaAvdeeva.github.io
+# Rock-Paper-Scissors.github.io
